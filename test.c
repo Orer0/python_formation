@@ -1,5 +1,0 @@
-&
-kkk&&
-!++llll
-===kkkk
-lll=
